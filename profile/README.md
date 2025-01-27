@@ -1,6 +1,6 @@
 When winter rolls around, staying warm without skyrocketing heating bills can feel like a daunting challenge. Enter the **Blast Auxiliary Heater**—a sleek, compact, and modern solution to keep you cozy all season long. This innovative device not only provides quick and efficient warmth but also helps cut your heating costs by up to 30%.
 
-## [‼️ BLAST AUXILIARY HEATER AVAILABLE ONLY ON OUR OFFICIAL WEBSITE ‼️](https://rebrand.ly/blastauxiliaryheater)
+## [‼️ BLAST AUXILIARY HEATER - AVAILABLE ONLY ON OUR OFFICIAL WEBSITE ‼️](https://rebrand.ly/blastauxiliaryheater)
 
 Let’s dive into what makes the Blast Auxiliary Heater a must-have for winter, covering everything from its benefits and features to how it works, customer reviews, and where to buy it.
 
